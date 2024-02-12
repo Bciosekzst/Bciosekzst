@@ -1,0 +1,7 @@
+-  I’m @Bciosekzst, an alt of near-future account.
+-  I’m interested in video games
+-  I’m currently learning how to code properly
+-  I’m looking to collaborate on me, myself and I
+-  How to reach me: You can't
+-  Pronouns: He/him
+-  Fun fact: An alt was created earlier than a main account
